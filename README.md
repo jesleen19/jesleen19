@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jesleen19----JESLEEN KAUR 
+- 👋 Hi, I’m @jesleen19----JESLEEN KAUR you can call me jass
 - 👀 I’m interested in ... create new things, painting and living the life with happiness and litle sparkle. 
 - 🌱 I’m currently learning ...DMIT at NAIT.
 - 💞️ I’m looking to collaborate on ...
